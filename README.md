@@ -1,0 +1,5 @@
+- 👋 Hello there! My name is Nur Rahmat Hidayat and I'm originally from the vibrant city of Banyumas, Central Java.
+- 👀 Currently, I'm pursuing my higher education journey at the Politeknik Negeri Semarang.
+- 🌱 I am passionate about technology and its role in shaping the future, which led me to major in Informatics Engineering.
+- 💞️ I’m looking to collaborate on ...
+- 📫 Email: neurrochmat6@gmail.com
